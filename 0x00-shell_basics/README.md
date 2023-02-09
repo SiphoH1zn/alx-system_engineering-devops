@@ -1,1 +1,1 @@
-The long format
+Bye bye Betty
